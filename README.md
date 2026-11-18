@@ -1,2 +1,1 @@
-<img width="600" height="338" alt="saiki k" src="https://github.com/user-attachments/assets/29978e42-b2f5-4035-8084-ad58b8d14d45" />
-
+<img width="500" height="269" alt="1091278553444883549" src="https://github.com/user-attachments/assets/aa71a4da-6586-41b4-aef7-ba9fdb846d6d" />
